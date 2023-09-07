@@ -1,5 +1,5 @@
 ### Hi there 👋
-hello motherfucker, am a busy man what dont had time to spend with pendejos like you 
+hello motherfucker, am a busy man what dont have time to spend with pendejos like you 
 <!--
 **JDaniel05/JDaniel05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
