@@ -1,5 +1,5 @@
 ### Hi there 👋
-hello motherfucker, am a busy man what dont have time to spend with pendejos like you, just call me or send a messege to +544 320543586, anyway, if you are asking why this number is writing similiar like the phone or you mother is because yes, i have them.
+hello motherfucker, am a busy man what dont have time to spend with pendejos like you, just call me or send a messege to +544 320543586, anyway, if you are asking why this number its writing similiar like the phone or you mother is because yes, i have them.
 <!--
 **JDaniel05/JDaniel05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
